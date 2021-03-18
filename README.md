@@ -1,1 +1,1 @@
-# rsschool-cv
+https://DenisItStep.github.io/rsschool-cv/cv
